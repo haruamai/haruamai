@@ -15,11 +15,11 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-oi eu sou a haruamai e gosto muito de tortas 🥧
-e sapos 🐸
-e filmes malucos 🚁🎬
+oi eu sou a haruamai e gosto muito de tortas 🥧 <br></br>
+e sapos 🐸<br></br>
+e filmes malucos 🚁🎬<br></br>
+muito prazer c:<br></br>
 
-muito prazer c:
 <img align="center" alt="naofunfa" height="30" width="40" src="https://giphy.com/gifs/sesame-street-yeah-its-a-thing-bathtub-party-day-s3nW8VjUiKkjC"    >
 
 
