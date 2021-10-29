@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+oi eu sou a haruamai e gosto muito de tortas 🥧
+e sapos 🐸
+e filmes malucos 🚁🎬
+
+muito prazer c:
+<img align="center" alt="naofunfa" height="30" width="40" src="https://giphy.com/gifs/sesame-street-yeah-its-a-thing-bathtub-party-day-s3nW8VjUiKkjC"    >
+
+
+
